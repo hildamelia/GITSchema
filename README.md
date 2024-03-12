@@ -1,0 +1,1 @@
+Nama Saya Hilda Amelia dengan NIM 202179014. Saat ini saya berkuliah di Universitas Pattimura Fakultas Matematika dan Ilmu Pengetahuan ALam di Jurusan Matematika dan telah menduduki semester 6 pada saat ini.
